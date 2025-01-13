@@ -11,3 +11,5 @@ Mom seems to be in decent spirits about her moving in with James and me. She is 
 Over all, today was pretty successful, I went to the store as well. The little big of social interaction I had seemed to be very beneficial to my on edge behaviors today. It seems that I am a introvert that has the needs of a extrovert. Which is somewhat funny, A oxymoron.
 
 You got this Deacon, keep up the good work and keep to your schedule!!!!
+
+[[2025-01-11 (First day of taking notes for 365 days)]]
