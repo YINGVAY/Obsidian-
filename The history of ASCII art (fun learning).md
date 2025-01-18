@@ -13,3 +13,5 @@ We can use tools like figlet and jp2a to locally create ascii art. There are ter
 **Why ascii art matters
 
 ASCII art embodies the spirit of creativity and resourcefulness in computing. It reminds us of a time when limitations bred innovation and art flourished in the most unexpected places, like on the screens and printers of early computers.
+
+[[2025-01-17 (sixth day, Last day of being lazy till james is off again)]]
